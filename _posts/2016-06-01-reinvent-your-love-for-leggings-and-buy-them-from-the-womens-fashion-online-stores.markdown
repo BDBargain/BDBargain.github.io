@@ -18,4 +18,5 @@ It is time to go for the most popular and comfy athleisure trend, by pairing up 
 Get hold of an oversized dark colored boyfriend sweater and wear it the off shoulder way!  Team this with a floral printed legging and a Pandora hat! 
 •	Dashing denim mini gets a new flavour 
 It is time to give your denim minis a different look with a flag printed legging and a sweatshirt! You can match this up with a baseball cap and flat plumps for the most sporty demeanor! 
+Apart from the women fashion aficionados, even men can spruce up their wardrobe through comfy pants from the leading mens fashion online stores .   
 To know more, visit   http://www.bdbargain.com/
